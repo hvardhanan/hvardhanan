@@ -13,7 +13,6 @@
 
 ### ✍️ Quote
 > "Pain and suffering are always inevitable for a large intelligence and a Deep heart"
-> > Fyodor Dyostevesky
 
 ---
 [![](https://visitcount.itsvg.in/api?id=hvardhanan&icon=7&color=13)](https://visitcount.itsvg.in)
