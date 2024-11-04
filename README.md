@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on a Transport app for our college<br>👯 I’m looking to collaborate on Web and App development<br>🌱 I’m currently learning DSA<br>
+🔭 Exploring New technologies.
 
 
 ## 🌐 Socials:
